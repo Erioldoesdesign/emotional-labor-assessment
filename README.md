@@ -253,10 +253,10 @@ If you are a man who has unusual difficulty with emotional labor due to experien
 
 If you are a man who is a member of an oppressed group, you may have read this list and thought "some of the things on this list are hard or impossible for me to do" due to your class background, economic instability, disability, mental illness, neuroatypicality and many other possible oppressions. However, here are some thought experiments to explore if you are a man and you have this reaction:
 
-* Do I need to perform similar amounts of emotional labor to a woman who shares my class background, economic instability or other oppressions?
-* Do I feel the same requirement as a woman who shares my oppressions to perform not only all this, but _additional_ emotional labor in order to reduce the impact of my oppressions on other people?
+* Do I need to perform similar amounts of emotional labor to a woman or non-binary person who shares my class background, economic instability or other oppressions?
+* Do I feel the same requirement as a womanor non-binary person who shares my oppressions to perform not only all this, but _additional_ emotional labor in order to reduce the impact of my oppressions on other people?
 * Do I feel a need to perform not only all this, but _additional_ emotional labor in order to still see my self and be seen as a man despite my oppressions?
 * When I am unable to perform some of the emotional labor needed in my life:
-	* Am I punished for not doing the labor nearly as much as a woman who shares my oppressions?
-	* Am I taught to punish myself for not doing the labor nearly as much as a woman who shares my oppressions?
-* Do people give women who share my oppressions the same assistance that I get with emotional labor?
+	* Am I punished for not doing the labor nearly as much as a woman or non-binary person who shares my oppressions?
+	* Am I taught to punish myself for not doing the labor nearly as much as a woman or non-binary person who shares my oppressions?
+* Do people give women or non-binary person who share my oppressions the same assistance that I get with emotional labor?
